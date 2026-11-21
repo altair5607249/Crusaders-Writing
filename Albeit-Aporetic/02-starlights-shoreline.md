@@ -86,7 +86,7 @@ Daleth sighs, producing a map filled with red circles from his pocket. “Travel
 
 “How come? You’re usually so full of energy!”
 
-“Not sure,” he replies, rubbing his right eye. It glows with a “I thought my body just needed a break, so I came back here.”
+“Not sure,” he replies, rubbing his right eye. Gareth can see a faint rubedo surrounding it, but he dismisses it as sleeplessness. “I thought my body just needed a break, so I came back here.”
 
 “Yeah?” 
 “Then, I lowkey realized that I lost my keys on the flight, so I figured I’d find you to ask if—”
