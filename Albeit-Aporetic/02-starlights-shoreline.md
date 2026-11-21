@@ -52,4 +52,75 @@ The outside world becomes obsolete as the doors slide shut. Only the hum of the 
 
 “At least he avoided saying my first name,” she mutters. “Gareth, that rascal. He acts as if judgment day is upon Ear—”
 
-\[im gonna take a break here\]
+He barks back, “Out of line?! You’re the one out—”
+
+The outside world turns soundless as the doors slide shut. Only the hum of the elevator accompanies her. She hugs her hat to her bosom like it’s a stuffed animal while panting like a live one. 
+
+“At least he avoided saying my first name,” she mutters. “Gareth, that rascal. He acts as if judgment day is upon Ear—”
+
+A sudden silhouette blurs past her view of the city. She dashes to the window, peeking down to get a second look at the silhouette. From the elevator, she stares as an adult man crashes into the concrete, the sound making her and every passerby jump.
+
+The man manages to pull himself up seconds later, to which her heart trips over itself. “Did one escape?”
+
+Ding! An elevator bell chimes in, inviting her silence. Two men with lab coats and folded arms stand outside, beyond the steel doors. One of the men, Dr. Connor Ceit, speaks without turning his head, “Ms. Kadim, the next set of candidates are waiting for their operations. Shall we start?”
+
+“Soon, Dr. Ceit.” Her footsteps echo into the facility as she walks ahead of the two men. “One of them didn’t escape, did they, Dr. Reis?”
+
+The other man, Dr. Hubert Reis, shakes his head. “No, but our cameras caught footage of a blurry, humanoid figure falling from the roof’s railing. We’re not able to find any footage of their journey there, but we are sure it is not one of ours.”
+
+She nods, redonning her panama hat. “Then I presume there was a census conducted?”
+
+“Of course, all 134 are present.”
+
+“Good, then we will begin with Trial #1790 shortly.”
+
+
+---
+
+
+Mr. De Souza sits squarely on the pavement, legs crossed and equipment on his lap. A hollow voice croaks out the reporter’s name, “Gareth.”
+
+“Yes?” The reporter turns around, facing away from Hylic Partners’ headquarters. “Daleth! My goodness, it’s been weeks. Where have you been?”
+
+Daleth sighs, producing a map filled with red circles from his pocket. “Traveling abroad for inspiration, but I’ve been feeling really tired lately.”
+
+“How come? You’re usually so full of energy!”
+
+“Not sure,” he replies, rubbing his right eye. It glows with a “I thought my body just needed a break, so I came back here.”
+
+“Yeah?” 
+“Then, I lowkey realized that I lost my keys on the flight, so I figured I’d find you to ask if—”
+
+“Of course you can stay over! Though, I beg that you try to avoid blowing up my basement like last time. Daniel couldn’t sleep for a month after that, so I had to buy him melatonin, and you know how tight money was even before the whole fiasco…”
+
+“Totally my bad, sorry.”
+
+“No, no, I know, but just be careful.”
+
+“Will do.” Daleth squats down, collapsing onto his back beside Gareth. “You’re not gonna ask how I thought to find you here, or whatever?”
+
+“No, you simply know that I’m always near the chaos. Besides, I’m sure you would’ve come of your own accord after hearing the fall.”
+
+“True, but I thought someone shot a gun.”
+
+Gareth chuckles, patting Daleth’s shoulder. “It did sound like that.”
+
+Daleth itches his head of hair, dandruff snowing from his scalp. His eyes pass over the skyscrapers in view, eventually landing on the Hylic Partners headquarters. “That place always has bad vibes.”
+
+“It’s because of Leyla.”
+
+“Probably.”
+
+“That rabblerouser…” Gareth grumbles. “She thinks her diplomatic immunity will stop me from exposing her, but I won’t let it.”
+
+“If you’re this upset, I’m assuming that those rumors are real then?”
+
+“They are not rumors. I’m sure of that, with every photon of the evening star’s light.”
+
+Venus looks down on the Earth, breaking through the atmosphere. Despite its brilliance, pollution fends off any shadow it attempts to cast. Daleth tilts his head toward the spectacle, whistling a dry tune until the words on his mind wear it out. “Its light doesn’t reach us, even when our eyes reach it.”
+
+“It is strange, isn’t it?” Gareth scoffs at the skyscraper. “I always pray for the starlight’s shoreline, so that it may one day illuminate Leyla’s crimes.”
+
+“What if it casts a shadow instead?”
+
+Gareth’s fist tightens around his microphone, bending the gilded metal. “Then these centuries of war meant nothing.”
