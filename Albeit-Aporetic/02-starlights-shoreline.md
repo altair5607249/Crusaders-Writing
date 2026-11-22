@@ -1,4 +1,4 @@
-# Starlight’s Shoreline
+## Starlight’s Shoreline
 
 A clacking of stilettos against the sidewalk cuts through the conversations along its way. The sound traces back to a sleek, feminine silhouette, completed by wavy locks of copper which stop at her thighs. A plum-colored long coat shrouds her body from the sunlight, and a black panama hat hides her eyes from the crowds. Ozone clings to her clothing, to which the olfaction of each stranger reacts.
 
@@ -10,7 +10,7 @@ People old and young, nearby and from the adjacent blocks begin to accumulate wi
 
 Her breath hardens when she curtails the journalist’s statements with her own. “Your mercy, friend, but I have a meeting to attend.”
 
-She settles back into a stride as her breath softens, pressing on through Rockefeller Center and slipping into the joints of the alleyways. Her silhouette sautés and fouettés through a route of fire escapes and rooftops without pausing to breathe, passing St. Patrick’s Cathedral, the MoMA, and eventually stopping at Billionaires’ Row.
+She settles back into a stride as her breath softens, pressing on through Rockefeller Center and slipping into the joints of the alleyways. Her body sautés and jetés through the maze of fire escapes and rooftops without wasting a breath, passing St. Patrick’s Cathedral, the MoMA, and eventually stopping at Billionaires’ Row.
 
 *Ever since the late nineteenth century, I’ve dreamt of trying my hand in modern architecture…*
 
@@ -24,37 +24,31 @@ The horde erupts into silence, standing at attention to the Alchemist. Two conci
 
 “Really?\! Let me see\!” 
 
-Rae gives a thumbs up, hoisting Les over her shoulders. “If you fall on my face again, I’ll make sure Daniel never feels your teeth.”
+Rae gives a thumbs up, hoisting Les over her shoulders. “If you fart on my face again, I’ll make sure Daniel never feels your teeth.”
 
-“…Hold up, there’s like half of New York City behind her\!”
+“…Hold on, there’s like half of New York City behind her\!”
 
-Paparazzi and the public aggregate into a second horde that buries the gravel and concrete, having caught up from before. Security guards sprint from their stations to form a phalanx, cutting the crowd off from the Alchemist. 
+Paparazzi and the public gather as a mess of flesh and blood, burying the gravel and concrete. Security guards sprint from their stations to form a phalanx, cutting the crowd off from the Alchemist. 
 
 *That pillar of creation is what years of Conceptual and Schematic Design have led up to; these sycophants are what decades of building rapport molded; the Alchemist is what centuries of living have likened me to.* 
 
-She tips her hat to the Earth, the brim’s shadow shrouding her visage as she continues forward. The felsenmeer of her employees splits apart as she nears the entrance, a toothy pattern carved across the sea of stones.
+She tips her hat to the Earth, the brim’s shadow shrouding her visage as she struts forward. The felsenmeer of her employees splits apart as she nears the entrance, a toothy pattern carved across the sea of stones. It’s a red carpet, just for her.
 
 *How embarrassing.*
 
-The Alchemist’s red carpet extends through the entrance, past the front desk, and to the elevator, which the eight people inside vacate. She bows to each person on her way in whilst she grips her hat, her fingers blanching. 
+The Alchemist’s red carpet rolls from the entrance, past the front desk, and to the elevator, where eight people exit. She bows to each person on her way in whilst she grips her hat, her fingers blanching. 
 
 “Ms. Kadim\!” a final reporter shouts, two steps ahead of the paparazzi and the public. Their voice matches the cadence of one buried in the strata of her Headspace. Her eyes widen like an antique door, though they’re nearly shut once she turns her head to the reporter.
 
-He coughs, clearing the phlegm from his throat and placing his lips on a gilded microphone. “Your executives say you came to America only to expand Hylic Partners, though many believe there to be a grander reason. Is today the day you will kill our suspicions?”
+He coughs, clearing the phlegm from his throat and kissing his gilded microphone. “Your executives say you came to America only to expand Hylic Partners, though many believe there to be a grander reason. Is today the day you will kill our suspicions?”
 
-She shakes her head, taking a second step into the elevator. Before the cab doors close, however, her face avulses from the headwear hiding it, and two rubies appear from her eyes to silence the sea of stones.
+She gently shakes her head, taking a second step into the elevator. As she presses a button labeled “26”  and waits for the cab doors to close, her face avulses from the headwear hiding it, and two rubies shine from her eyes to silence the sea of stones.
 
 “Be careful, Mr. De Souza,” she warns, wagging her index finger. “You’re out of line.”
 
-He barks back, “Out of line?\! If only these people knew\! If only you understoo—”
+He barks back, “Out of line?\! You’re the one out—”
 
-The outside world becomes obsolete as the doors slide shut. Only the hum of the elevator accompanies her. She hugs her hat to her bosom like a stuffed animal while panting like a live one. 
-
-“At least he avoided saying my first name,” she mutters. “Gareth, that rascal. He acts as if judgment day is upon Ear—”
-
-He barks back, “Out of line?! You’re the one out—”
-
-The outside world turns soundless as the doors slide shut. Only the hum of the elevator accompanies her. She hugs her hat to her bosom like it’s a stuffed animal while panting like a live one. 
+The outside world turns soundless as the doors slide shut. Only the hum of the elevator accompanies her. She hugs her hat to her bosom like it’s a stuffed animal while panting like a live one. 
 
 “At least he avoided saying my first name,” she mutters. “Gareth, that rascal. He acts as if judgment day is upon Ear—”
 
@@ -62,7 +56,7 @@ A sudden silhouette blurs past her view of the city. She dashes to the window, p
 
 The man manages to pull himself up seconds later, to which her heart trips over itself. “Did one escape?”
 
-Ding! An elevator bell chimes in, inviting her silence. Two men with lab coats and folded arms stand outside, beyond the steel doors. One of the men, Dr. Connor Ceit, speaks without turning his head, “Ms. Kadim, the next set of candidates are waiting for their operations. Shall we start?”
+Ding\! An elevator bell chimes in, inviting her silence. Two men with lab coats and folded arms stand outside, beyond the steel doors. One of the men, Dr. Connor Ceit, speaks without turning his head, “Ms. Kadim, the next set of candidates are waiting for their operations. Shall we start?”
 
 “Soon, Dr. Ceit.” Her footsteps echo into the facility as she walks ahead of the two men. “One of them didn’t escape, did they, Dr. Reis?”
 
@@ -72,26 +66,25 @@ She nods, redonning her panama hat. “Then I presume there was a census conduct
 
 “Of course, all 134 are present.”
 
-“Good, then we will begin with Trial #1790 shortly.”
-
+“Good, then we will begin with Trial \#1790 shortly.”
 
 ---
 
-
 Mr. De Souza sits squarely on the pavement, legs crossed and equipment on his lap. A hollow voice croaks out the reporter’s name, “Gareth.”
 
-“Yes?” The reporter turns around, facing away from Hylic Partners’ headquarters. “Daleth! My goodness, it’s been weeks. Where have you been?”
+“Yes?” The reporter turns around, facing away from Hylic Partners’ headquarters. “Daleth\! My goodness, it’s been weeks. Where have you been?”
 
 Daleth sighs, producing a map filled with red circles from his pocket. “Traveling abroad for inspiration, but I’ve been feeling really tired lately.”
 
-“How come? You’re usually so full of energy!”
+“How come? You’re usually so full of energy\!”
 
 “Not sure,” he replies, rubbing his right eye. Gareth can see a faint rubedo surrounding it, but he dismisses it as sleeplessness. “I thought my body just needed a break, so I came back here.”
 
-“Yeah?” 
+“Yeah?”
+
 “Then, I lowkey realized that I lost my keys on the flight, so I figured I’d find you to ask if—”
 
-“Of course you can stay over! Though, I beg that you try to avoid blowing up my basement like last time. Daniel couldn’t sleep for a month after that, so I had to buy him melatonin, and you know how tight money was even before the whole fiasco…”
+“Of course you can stay over\! Though, I beg that you try to avoid blowing up my basement like last time. Daniel couldn’t sleep for a month after that, so I had to buy him melatonin, and you know how tight money was even before the whole fiasco…”
 
 “Totally my bad, sorry.”
 
@@ -115,7 +108,7 @@ Daleth itches his head of hair, dandruff snowing from his scalp. His eyes pass o
 
 “If you’re this upset, I’m assuming that those rumors are real then?”
 
-“They are not rumors. I’m sure of that, with every photon of the evening star’s light.”
+“They are *not* rumors. I’m sure of that, with every photon of the evening star’s light.”
 
 Venus looks down on the Earth, breaking through the atmosphere. Despite its brilliance, pollution fends off any shadow it attempts to cast. Daleth tilts his head toward the spectacle, whistling a dry tune until the words on his mind wear it out. “Its light doesn’t reach us, even when our eyes reach it.”
 
