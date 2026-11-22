@@ -1,4 +1,4 @@
-# Slow Strings
+## Slow Strings
 
 “This world we’ve created…” He pauses. The moment steals his voice as he takes it in. “It’s beautiful.”
 
@@ -8,13 +8,25 @@
 
 “Well, Veryn, it’s the model that each individual’s SOL will innately know, so that they may choose to one day reach the grandeur of this place.”
 
-“SOL… that refers to their inner world, correct?”
+“SOL… why must it reside within an individual?”
 
-“Correct. Each detail we’ve included, especially the ‘*stars*,’ will inspire humanity.”
+“No amount of space cannot accommodate each one’s vastness.”
+
+Veryn points into the sky. “Forgive me if I lack the proper perspective, but… there’s infinite space.”
+
+“Infinities of different magnitudes exist,” Polarys staunchly states. “It goes without saying.”
+
+“...I fear there are limits to what these human brains can comprehend.”
+
+“Excellent, because I can barely understand my own assertions,” Polarys snickers. “These details about humanity, especially their corporeal limitations, will inspire them to reach what they cannot with them in tow.”
+
+“Oh, stop reveling in your machinations. We’ve gone over each of them in excruciating detail.”
+
+“You say this, but never tire of the stars.”
 
 Infantile dots of light crowd the ether, ignoring that emptiness that dictates them. Two directors of the scene—Polarys, the oldest dreamer, and Veryn, his aide—scrutinize the formation, comparing it to their blueprints of humanity’s home-to-be.
 
-“And the moment the stars rise to consciousness, *they* will be the first of humanity and the examples for posterity to follow, at least in terms of their linear time.” Polarys points skyward, his index finger panning over each dot of light. “*They* are the **Sovereigns** of the celestial sphere surrounding us. You understand my plan, don’t you?”
+“The moment those stars rise to consciousness, *they* will be the first of humanity and the examples for posterity to follow, at least in terms of their linear time.” Polarys points skyward, his index finger tracing across each dot of light. “*They* are the **Sovereigns** of the celestial sphere surrounding us. You understand my plan, don’t you?”
 
 “Of course,” Veryn nods. “I still wonder how this democracy can stand without your guidance, or at least some form of documentation behind your ‘grand tapestry.’”
 
@@ -56,7 +68,7 @@ Veryn’s gaze drops from the sky, his body sinking into the ground they built t
 
 Veryn sighs, shaking his head. “Eyes do not feast.”
 
-Polarys giggles, his response already finished cooking. “Are you sure? I feel my stomach filling with the stars right now\!”
+Polarys giggles, his stellar response already formed. “Are you sure? I feel my stomach filling with the stars right now\!”
 
 “It’s infuriating how each utterance of yours sounds more passive than the last.”
 
@@ -90,13 +102,13 @@ Veryn shrugs, his eyes wandering from Polarys’. “I’ll never forget it, esp
 
 “Ah, no other being will be able to protect the people here like you.”
 
-“But the schematics for Kosmos are excellent in that regard\!”
+“But the schematics for… *any* of the Sovereigns are excellent in that regard\!”
 
-“And yet, he will grow beyond those schematics, much like you are already doing so with yours.”
+“And yet, they will grow beyond their schematics, much like you are already doing so with yours.”
 
 “Then that implies every individual will eventually grow beyond their blueprint.”
 
-“That’s exactly my point.”
+“Precisely my point.”
 
 Veryn’s eyes stir to the side, mixing with Polarys’. A maze of wrinkles gather around the aide’s brows. “…What?”
 
