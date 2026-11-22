@@ -1,4 +1,4 @@
-# Men & Machines
+## Men & Machines
 
 The sun’s final rays peek over the horizon for the day. An etude of orange and pink suspends itself against the firmament, waiting for space and its stars to take watch. It follows the lone sentinel, Veryn.
 
